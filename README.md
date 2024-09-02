@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **Darshankumarr03@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Onp7fWYg-15DgUlkeWOgywII3Tzwnf1a/view?usp=drive_link](https://drive.google.com/file/d/1Onp7fWYg-15DgUlkeWOgywII3Tzwnf1a/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Onp7fWYg-15DgUlkeWOgywII3Tzwnf1a/view?usp=drive_link](https://drive.google.com/file/d/1mo2zgg781sJdwzr3xRsz8L_e84rcoGaB/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
