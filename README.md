@@ -1,11 +1,10 @@
 <h1 align="center">Hi 👋, I'm Darshan Kumar</h1>
 <h3 align="center">A Machine Learning and Data Science Enthusiast</h3>
 
-- 🌱 I’m currently learning **LLMOps and Core MLOps**
 
 - 📧 How to reach me: **Darshankumarr03@gmail.com**
 
-- 🖋 Know about my experiences: [My Resume](https://drive.google.com/file/d/1mo2zgg781sJdwzr3xRsz8L_e84rcoGaB/view?usp=drive_link)
+- 🖋 Know about my experiences: [My Portfolio](https://linktr.ee/darshankumarr03)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
